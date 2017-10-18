@@ -1,0 +1,2 @@
+# Regras
+Este é um servidor para todos da guild e convidados. Por favor manter ordem e tudo ocorrerá bem.  *Sem Links e derivados (Apenas autorizados). *Não incentivar brigas ou provocá las. *Nosso Discord é para aproximar todos vocês. *Não causar spam. *Nada de flame/hate. *Não nos responsabilizamos sobre todos os atos que você praticar em nosso servidor (share de acc,empréstimo de pokes,links suspeitos, etc.)   Estamos trabalhando para um local melhor e agradável para nossos players.
